@@ -8,4 +8,4 @@
 * 职场规划咨询
 
 ### 📺 最新视频
-[[这里可以放你的 YouTube 链接](https://youtu.be/fRi6kf-vZ34)]
+[我的youtube频道](https://youtu.be/fRi6kf-vZ34)]
